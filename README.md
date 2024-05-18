@@ -1,1 +1,6 @@
 ![patent](https://github.com/legend4140/carecompass/assets/81460736/e66741c3-66d7-4d33-a09e-622a29ad8003)
+![image](https://github.com/legend4140/carecompass/assets/81460736/82d23d7c-b1dd-4520-bc45-637a0d1aee66)
+![image](https://github.com/legend4140/carecompass/assets/81460736/ceeb6645-6997-4dd7-8653-6829cf8bdf96)
+![image](https://github.com/legend4140/carecompass/assets/81460736/be6caf9d-b39a-4664-9473-2e72d0594a16)
+![image](https://github.com/legend4140/carecompass/assets/81460736/b03f531e-9f4f-4717-b923-049a9d0a2392)
+![image](https://github.com/legend4140/carecompass/assets/81460736/e5a3f7c7-70f3-4814-a833-355230ef8e8e)
